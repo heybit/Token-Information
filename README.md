@@ -16,3 +16,28 @@ With the Hey Bitcoin ICO you get an opportunity to be there at the
 beginning of this revolutionary blockchain-based decentralised portfolio
 investment technology and take advantage of profits from the initial
 offering.
+
+
+Total Supply 
+2311000000 HYBN
+
+Token Sale Program . 50%       
+1155500000 HYBN
+
+Reserve Fund 10%
+231100000 HYBN
+
+Team and Founders 15%
+346650000 HYBN
+
+Board Advisors 10 %
+231100000 HYBN
+
+Marketing and Bounty 15%
+346650000 HYBN
+
+Useful links
+
+Official Website: https://heybitcoin.io
+
+Contact us Feel free to email us at admin@heybitcoin.io
